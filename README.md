@@ -1,0 +1,1 @@
+# trickyseven7.github.io
